@@ -1,0 +1,12 @@
+# COVID LEAK 2025 – GHOST PANGOLIN
+Le dossier complet : 70 ans de plan, Rivotril euthanasie, DEFUSE labo, pass traîtres, plaintes Di Vizio/AVCF.
+
+## Télécharge & Décrypte
+- [DOSSIER_CRYPTE.zip](DOSSIER_CRYPTE.zip) (Mot de passe: Pangolin2025)
+- Plaintes modèles: Voir section 4.
+
+Copiez, notez, partagez, #CovidLeaks
+Fork, star, share. #CovidLeaks
+Telegram: t.me/legrandreveil_org
+X: @GhostPangolin
+https://github.com/ghostpangolin/covidleaks
